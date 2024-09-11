@@ -1,1 +1,0 @@
-Kharyskhan Vasilev
